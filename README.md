@@ -1,1 +1,2 @@
-megan Wooley
+Megan Wooley
+wooleym@oregonstate.edu
